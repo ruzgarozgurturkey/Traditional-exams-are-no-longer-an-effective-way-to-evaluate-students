@@ -9,4 +9,4 @@ In contrast, digital exams provide faster feedback and more convenience. This al
 
 A more effective approach to education could involve combining both traditional and digital methods. It is widely believed that modern assessment systems play a crucial role in future education models.
 
-To conclude, while different countries use different education systems, it is important to evaluate global developments. Overall, it can be argued that traditional exams may need to be reformed rather than completely eliminated
+To conclude, while different countries use different education systems, it is important to evaluate global developments. Overall, it can be argued that traditional exams may need to be reformed rather than completely eliminated.
